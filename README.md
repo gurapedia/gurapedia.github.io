@@ -1,0 +1,1 @@
+# gurapedia.github.io
